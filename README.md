@@ -1,6 +1,6 @@
-#El Saqueo del Valle Esmeralda
+# El Saqueo del Valle Esmeralda
 
-##Autores: 
+## Autores: 
 - Stephanie Guerrero Orjuela
 - Karen Sofia Pinilla
 - Samuel Francisco Rubio Casallas
