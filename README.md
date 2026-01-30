@@ -1,1 +1,5 @@
-Final
+
+Ahora sin sus tesoros, ambos estaban en graves problemas. Las hadas perdian poco a poco el brillo de sus alas y algunas ya no podían volar, los brujos apenas y podían prender un fósforo mágico y algunos perdian sus poderes. Existía una necesidad y era urgente para ambos recuperar sus tesoros. 
+Por esto la lider de las hadas, Elara, y el lider de los brujos, Malakor, se reunieron en puente del rio que los dividía y expresaron sus preocupaciones. "Si no recuperamos nuestro polvo de estrellas antes del amanecer, mi pueblo se desvanecerá" dijo Elara, y Malakor respondió "Debemos vencer al gigante, con astucia y fuerza". Y así fue como planearo una emboscada a la cueva de los gigantes, dinde Grog dormía. 
+Lo que hicieron fue que mientras las hadas usaban sus últimos rastros de magia para crear mariposas de luz que distrajeran la vista del gigante, los brujos hacian runas de pesadez en las rocas que rodeaban su entrada para que Grog no se pudiera mover. 
+Cuando Grog despertó y trató de levantarse, sintió que sus pies pesaban demasiado y le era imposible levantarse por los hechizos de los brujos. En su rabia estaba intentando de aplastar a las mariposas que volaban y que lo estaban cegando con su luz.
